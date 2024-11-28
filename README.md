@@ -7,7 +7,7 @@
 
 <div align="center">
   
-**c+h always**. just ask if im with my friend first. ugly -> @K8sp3r
+**c+h always**. just ask if im with my friend first
 
 usually afk, off tab or in party chat. feel free to int but whispers get my attention pretty quickly.
 
