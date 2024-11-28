@@ -9,9 +9,9 @@
   
 **c+h always**. just ask if im with my friend first
 
-usually afk, off tab or in party chat. feel free to int but whispers get my attention pretty quickly.
-
 **an adult.** ***19.*** i may make adult jokes but i try to stay clean in public chat
+
+usually afk, off tab or in party chat. feel free to int but whispers get my attention pretty quickly.
 
 ***fictionkin***. pest and sebastian are *permashifts*. i have more btw
 
