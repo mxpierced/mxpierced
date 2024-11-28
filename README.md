@@ -11,6 +11,8 @@
 
 usually afk, off tab or in party chat. feel free to int but whispers get my attention pretty quickly.
 
+**an adult.** ***19.*** i may make adult jokes but i try to stay clean in public chat
+
 ***fictionkin***. pest and sebastian are *permashifts*. i have more btw
 
 gradientbeetle/unpestant/uglybug whatevr other ship names forevr. [i miss them]
