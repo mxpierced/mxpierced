@@ -15,7 +15,7 @@ usually afk, off tab or in party chat. feel free to int but whispers get my atte
 
 ***fictionkin***. pest and sebastian are *permashifts*. i have more btw
 
-gradientbeetle/unpestant/uglybug whatevr other ship names forevr. [i miss them]
+gradientbeetle/unpestant/uglybug whatevr other ship names forevr
 
 [**ac**](https://x.com/misteroldsport/status/1757747832986198515/photo/1)
 </div>
