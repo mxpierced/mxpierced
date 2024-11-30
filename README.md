@@ -17,6 +17,8 @@ usually afk, off tab or in party chat. feel free to int but whispers get my atte
 
 gradientbeetle/unpestant/uglybug whatevr other ship names forevr
 
+**basic dni.** more personally pressure fandom either dni or iwec. 
+
 [**ac**](https://x.com/misteroldsport/status/1757747832986198515/photo/1)
 </div>
 
