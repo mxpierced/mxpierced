@@ -20,4 +20,6 @@ gradientbeetle/unpestant/uglybug whatevr other ship names forevr
 [**ac**](https://x.com/misteroldsport/status/1757747832986198515/photo/1)
 </div>
 
+<div align="center">
 ![](https://komarev.com/ghpvc/?username=rozzychill&color=b51f13&style=plastic&label=empty-pockets)
+</div>
