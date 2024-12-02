@@ -18,7 +18,6 @@ usually afk, off tab or in party chat. feel free to int but whispers get my atte
 gradientbeetle/unpestant/uglybug whatevr other ship names forevr
 
 **things i like:** *regretevator*, pressure, *hollow knight*, hilda the series, murder drones, minecraft, ***MY OCS!!!!!!!!*** +more
-other fictionkin/otherkin feel free to int...... if u want
 
 **basic dni.** more personally pressure fandom either dni or iwec. 
 
