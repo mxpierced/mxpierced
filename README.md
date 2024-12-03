@@ -13,7 +13,7 @@
 
 usually afk, off tab or in party chat. feel free to int but whispers get my attention pretty quickly.
 
-***fictionkin***. pest and sebastian are *permashifts*. i have more kins/kintypes btw
+***fictionkin***. pest and sebastian are *permashifts*. just assume my skins are my kintypes or ocs.
 
 gradientbeetle/unpestant/uglybug whatevr other ship names forevr
 
