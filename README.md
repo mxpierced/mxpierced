@@ -2,7 +2,7 @@
   <img src="https://i.postimg.cc/zGvC6Jsq/uuuuuhggggggg.jpg" />
 </p>
 <p align="center">
-  <img src="https://i.postimg.cc/jqG6m0sf/agen.png" /> <img src="https://i.postimg.cc/GhGP1725/augh.png" /> <img src="https://i.postimg.cc/Gmjk44vP/achil.png" />
+  <img src="https://i.postimg.cc/jqG6m0sf/agen.png" /> <img src="https://i.postimg.cc/rsp1Kt2d/huh.png" /> <img src="https://i.postimg.cc/Gmjk44vP/achil.png" />
 </p>
 
 <div align="center">
