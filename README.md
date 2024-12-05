@@ -21,7 +21,7 @@ gradientbeetle/unpestant/uglybug whatevr other ship names forevr
 
 **basic dni.** more personally pressure fandom either dni or iwec.
 
-**will always interact with people under 16 with extreme caution.** same thing with people who dont put their ages in bio/tell me b4hand ^_^
+**i will always interact with people under 16 with extreme caution.** same thing with people who dont put their ages in bio/dont tell me b4hand ^_^
 
 [**ac**](https://x.com/misteroldsport/status/1757747832986198515/photo/1)
 </div>
