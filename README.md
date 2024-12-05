@@ -7,7 +7,7 @@
 
 <div align="center">
   
-**c+h always**. just ask if im with my friend first
+**c+h always**. just ask if im with my friend first.
 
 **an adult.** ***19.*** i may make adult jokes but i try to stay clean in public chat
 
@@ -19,7 +19,9 @@ gradientbeetle/unpestant/uglybug whatevr other ship names forevr
 
 **things i like:** *regretevator*, pressure, *hollow knight*, hilda the series, murder drones, minecraft, ***MY OCS!!!!!!!!*** +more
 
-**basic dni.** more personally pressure fandom either dni or iwec. **will always interact with people under 16 with extreme caution.**
+**basic dni.** more personally pressure fandom either dni or iwec.
+
+**will always interact with people under 16 with extreme caution.** same thing with people who dont put their ages in bio/tell me b4hand ^_^
 
 [**ac**](https://x.com/misteroldsport/status/1757747832986198515/photo/1)
 </div>
