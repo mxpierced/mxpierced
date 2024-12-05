@@ -19,7 +19,7 @@ gradientbeetle/unpestant/uglybug whatevr other ship names forevr
 
 **things i like:** *regretevator*, pressure, *hollow knight*, hilda the series, murder drones, minecraft, ***MY OCS!!!!!!!!*** +more
 
-**basic dni.** more personally pressure fandom either dni or iwec. <u>**will always interact with people under 16 with extreme caution.**</u>
+**basic dni.** more personally pressure fandom either dni or iwec. **will always interact with people under 16 with extreme caution.**
 
 [**ac**](https://x.com/misteroldsport/status/1757747832986198515/photo/1)
 </div>
