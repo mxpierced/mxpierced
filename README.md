@@ -21,7 +21,8 @@ generally otherkin. i ALSO have illnesses but i wont list them. might joke about
 
 **basic dni.** just be a decent human being.
 
-[**ac**](https://www.tumblr.com/c0zmozys)⠀.⠀[color my 🎄](https://colormytree.me/2024/01JEPE2Y77T6WZJCRCF91KM6JA)⠀.⠀[atabook](https://rozzychill.atabook.org/)
+$${\color{red}Red}$$
+[**ac**](https://www.tumblr.com/c0zmozys)⠀.⠀[color my 🎄](https://colormytree.me/2024/01JEPE2Y77T6WZJCRCF91KM6JA)⠀.⠀[**atabook**](https://rozzychill.atabook.org/)
 </div>
 
 <div align="center">
