@@ -2,7 +2,6 @@
   <img src="https://i.postimg.cc/RFsYpPmR/WOWOWO.png" />
 </p>
 <div align="center">
-  
   me if they merged
   
 </div>
