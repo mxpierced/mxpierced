@@ -17,7 +17,7 @@ interaction is okay, im usually in party chat or off tab. whisper me for quicker
 
 i am *fictionkin*. pest is my #1 permashift. assume most skins are my kintypes or ocs.
 
-also generally otherkin. i ALSO have illnesses but i dont list them. might joke about it sumtimes.
+also generally otherkin. i ALSO have illnesses but i wont list them. might joke about it sumtimes.
 
 **basic dni.** just be a decent human being.
 
