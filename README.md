@@ -13,7 +13,7 @@ call me **mawce**, roz or any *kin names* !
 
 **c+h always**, just ask b4hand if im with my friend
 
-interaction is okay, im usually in party chat or off tab. whisper me for quicker replies
+interaction is okay, im usually in party chat or off tab. whisper for quicker replies
 
 i am *fictionkin*. pest is my #1 permashift. assume most skins are my kintypes or ocs.
 
