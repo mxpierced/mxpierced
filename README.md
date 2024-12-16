@@ -9,9 +9,9 @@
   
 call me **mawce**, roz or any *kin names* !
 
-9teen. anyone under 16 i'll *iwc*, it goes both ways.
+9teen. *im always interacting w/ppl with caution.*
 
-interaction is okay, im usually in party chat or off tab. whisper for quicker replies
+free to int, im usually in party chat or off tab. whisper for quicker replies
 
 **c+h always**, just ask b4hand if im with my friend
 
@@ -19,7 +19,7 @@ i am *fictionkin*. pest is my #1 permashift. assume most skins are my kintypes o
 
 generally otherkin. i ALSO have illnesses but i wont list them. might joke about it sumtimes.
 
-**basic dni.** just be a decent human being.
+**basic dni.** under 16 dni ^_^ i dont get paid 4 babysitting. more personally other pest kins iwc
 
 [**ac**](https://www.tumblr.com/c0zmozys) / [**pfp**](https://x.com/punkopun/status/1863997617879024053/photo/1)⠀.⠀[color my 🎄](https://colormytree.me/2024/01JEPE2Y77T6WZJCRCF91KM6JA)⠀.⠀[**atabook**](https://PESTSPACE.atabook.org/)
 </div>
