@@ -11,9 +11,9 @@ call me **mawce**, roz or any *kin names* !
 
 9teen. anyone under 16 i'll *iwc*, it goes both ways.
 
-**c+h always**, just ask b4hand if im with my friend
-
 interaction is okay, im usually in party chat or off tab. whisper for quicker replies
+
+**c+h always**, just ask b4hand if im with my friend
 
 i am *fictionkin*. pest is my #1 permashift. assume most skins are my kintypes or ocs.
 
