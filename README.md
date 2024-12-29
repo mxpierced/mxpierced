@@ -6,7 +6,7 @@
 
 <div align="center">
 
-look at this sad sack of a man. #facereveal2025
+look at this sad sack of a man. shell of a beast that will never come to be. #facereveal2025
 
 </div>
 
