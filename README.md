@@ -6,7 +6,7 @@
 
 <div align="center">
 
-men don't have to be included in everything. this includes lesbianism
+look at this sad sack of a man. #facereveal2025
 
 </div>
 
