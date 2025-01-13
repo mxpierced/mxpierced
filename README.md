@@ -12,7 +12,7 @@ look at this sad sack of a man. stupid idiot. #facereveal2025
 
 <div align="center">
 
-  ![](https://komarev.com/ghpvc/?username=rozzychill&color=e6581c&style=plastic&label=potential-targets)
+  ![](https://komarev.com/ghpvc/?username=rozzychill&color=fd2f00&style=plastic&label=potential-targets)
 
   [ac](https://x.com/Soda_Stuff/status/1696344890576347401)
   
