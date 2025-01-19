@@ -2,7 +2,7 @@
 
 19 yo fictionkin FAG. w2i but c+h is fine, just ask if im already w someone.
 
-thats it. heres [my](https://regretevator.fandom.com/wiki/Unpleasant) [bfs](https://block-tales.fandom.com/wiki/Griefer) [btw](https://pressure.fandom.com/wiki/Painter). i fw roblox heavy.
+thats it. heres [my](https://regretevator.fandom.com/wiki/Unpleasant) [bfs](https://block-tales.fandom.com/wiki/Griefer) btw. i fw roblox heavy.
 
 </div>
 
