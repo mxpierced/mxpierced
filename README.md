@@ -1,6 +1,8 @@
 <div align="center">
 
-<- blud doesnt know he exists
+19 yo fictionkin FAG. w2i but c+h is fine, just ask if im already w someone.
+
+thats it. heres [my](https://regretevator.fandom.com/wiki/Unpleasant) [bfs](https://block-tales.fandom.com/wiki/Griefer) btw. i fw roblox heavy.
 
 </div>
 
