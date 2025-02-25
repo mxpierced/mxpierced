@@ -1,6 +1,6 @@
 <div align="center">
 
-19 yo fictionkin FAG + yume. w2i but c+h is fine, just ask if im already w someone.
+19 yo fictionkin FAG. w2i but c+h is fine, just ask if im already w someone.
 
 **no dni.** just don't be weird (and be a decent human being).
 
