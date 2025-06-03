@@ -1,6 +1,6 @@
 <div align="center">
 
-20 yo fictionkin mlm freak. 
+20 yo freakshow.
 
 this place drives me insane.
 
