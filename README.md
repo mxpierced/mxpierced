@@ -1,15 +1,13 @@
 <div align="center">
 
-20 yo fictionkin mlm freak. w2i but c+h is fine, just ask if im already w someone.
+20 yo fictionkin mlm freak. 
 
-**no dni.** just don't be weird (and be a decent human being).
-
-[me](https://regretevator.fandom.com/wiki/Pest), my [boyfriend](https://regretevator.fandom.com/wiki/Unpleasant). i like the weird ones.
+this place drives me insane.
 
 </div>
 
 <div align="center">
 
-  ![](https://komarev.com/ghpvc/?username=rozzychill&color=fd2f00&style=plastic&label=potential-targets)
+  ![](https://komarev.com/ghpvc/?username=rozzychill&color=fd2f00&style=plastic&label=eggs)
   
 </div>
