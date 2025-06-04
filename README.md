@@ -1,6 +1,6 @@
 <div align="center">
 
-20 yo freakshow. fictionkin
+20 yo freakshow. fictionkin, subspace permashift. you have been WARNED!!!!!!!!!
 
 this place drives me insane.
 
