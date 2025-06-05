@@ -2,7 +2,7 @@
 
 names r pierce or knives.
 
-20 yo freakshow. fictionkin
+20 yo freakshow. fictionkin, c+h freely
 
 subspace + pest permashift. you have been WARNED!!!!!!!!!
 
