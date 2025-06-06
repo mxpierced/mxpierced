@@ -4,7 +4,7 @@ names r pierce or knives.
 
 20 yo freakshow. fictionkin, c+h freely idm
 
-subspace + pest permashift. you have been WARNED!!!!!!!!!
+subspace + smc + pest permashift. you have been WARNED!!!!!!!!!
 
 </div>
 
